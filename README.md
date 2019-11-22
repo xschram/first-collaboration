@@ -6,5 +6,5 @@ Collaborators:
 - Partner 2 name is Sonia
 
 
-Er was eens een hele dikke koe , die als ze liep
+Er was eens een hele dikke koe , die als ze liep pijn aan haar hoef kreeg
 
