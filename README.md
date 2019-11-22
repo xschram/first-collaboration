@@ -5,4 +5,6 @@ Collaborators:
 - Partner 1 name is Xandra
 - Partner 2 name is Sonia
 
-Er was eens een hele dikke koe 
+
+Er was eens een hele dikke koe , die als ze liep
+
